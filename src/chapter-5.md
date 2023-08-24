@@ -1,5 +1,3 @@
-Chapter 5: Improving Health and Wellness with AI
-================================================
 
 AI technology can be used to improve health and wellness outcomes. In this chapter, we'll explore how AI-driven systems can provide personalized fitness and nutrition planning, as well as automate health tracking and analysis.
 
