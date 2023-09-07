@@ -8,3 +8,7 @@ From mindfulness and meditation practices to goal setting and habit formation st
 So, let's dive in and discover the exciting world of AI for personal transformation. By learning how to harness the power of advanced technology for continuous growth and improvement, you can unlock your full potential and achieve your dreams.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
